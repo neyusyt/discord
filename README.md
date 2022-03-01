@@ -1,6 +1,7 @@
 # Discord Server
 
-Hi Leute, mein Name ist Neyus und ich mache Wöchendlich YouTube Videos auf meinem YouTube Kannal
+Hi Leute, mein Name ist Neyus und ich mache Wöchentlich YouTube Videos auf meinem YouTube Kannal. 
+Auf meinem YouTube kanal geht es darum wie ich Tutorials bringe über Fortnite und vielleicht auch bald Discord.
 
 ## Social Media:
 
